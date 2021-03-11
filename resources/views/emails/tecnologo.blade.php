@@ -1,0 +1,1 @@
+Eres un tecnico o un tecnologo
